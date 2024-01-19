@@ -21,7 +21,7 @@ Codecanyon price $3400
 
 We provide this service for you at very cheap prices, only $350
 
-You can also buy it from us.
+You can also buy it from us website.
 
 
 V3 latest version + All addons
