@@ -6,11 +6,15 @@ Bicrypto V2 Nulled - Bicrypto V3 Nulled - Bicrypto - Crypto Trading Platform, Bi
 
 
 Free Installation
+
 3 months technical support free.
+
 We will set all the settings for you free.
 
 You must have Ubuntu 20 VPS Server and root access is required.
+
 You can contact us to see and test our demo.
+
 We will set everything, down to your logo, for free.
 
 Codecanyon price $3400
